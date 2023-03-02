@@ -15,15 +15,15 @@
 
 - [x] FRIENDS : [HERE](https://t.me/hardinbio)
 
-- [x] BOT : [HYDRA](https://telegram.dog/Hydra_100_bot)
+- [x] BOT : [KILLER](https://telegram.dog/Killer_psycho_bot)
 
 - [x] Telethon Knowledge : 0%
 
 - [x] Pyrogram knowledge : 0%
 
-- [x] Group : [FutureCity](https://telegram.dog/FutureCity004)
+- [x] Group : [HARTIN BIO](https://telegram.dog/hardinbio)
 
-- [x] Channels : [Here](https://t.me/otazuki_bio/16)
+- [x] Channels : [Here](https://t.me/hardinbio)
 
 ╘═━「 Can be found on telegram as [𓆩≛ 𝐇 𝐀 𝐑 𝐃 𝐈 𝐍 ≛𓆪](https://telegram.dog/oiibabyy) 」
 
