@@ -1,6 +1,6 @@
 # 𓆩≛ 𝐇 𝐀 𝐑 𝐃 𝐈 𝐍 ≛𓆪
 
-[![](https://te.legra.ph/file/6c6e0a75e3b222f7e19a0.jpg)]
+[![](https://te.legra.ph/file/09544232d3f37415fd58e.jpg)]
 
 
 ###  ╔═━「 Details 」
@@ -13,7 +13,7 @@
 
 - [x] DOB : 27/12
 
-- [x] FRIENDS : [HERE](https://t.me/otazuki_bio/14)
+- [x] FRIENDS : [HERE](https://t.me/hardinbio)
 
 - [x] BOT : [HYDRA](https://telegram.dog/Hydra_100_bot)
 
