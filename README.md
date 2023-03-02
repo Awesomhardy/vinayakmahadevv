@@ -32,9 +32,9 @@
 - [x] YouTube : [HERE](https://bit.ly/3ChmXad)
 - [x] INSTAGRAM : [HERE](https://bit.ly/3yrFJKU)
 - [x] DISCORD : [HERE](https://bit.ly/3RPdooH)
-- [x] TELEGRAM : [HERE](https://t.me/Otazuki_004)
+- [x] TELEGRAM : [HERE](https://t.me/hardinbio)
 - [x] FUTURE CITY : [HERE](https://telegram.dog/futureCity005)
-- [x] BIO : [HERE](https://telegram.dog/Otazuki_bio)
+- [x] BIO : [HERE](https://telegram.dog/hardinbio)
 
 
 
